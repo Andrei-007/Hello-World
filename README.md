@@ -1,3 +1,3 @@
 # Hello-World
 Hi Humans!
-i can write , may be programmer code
+Hello my dear friend! Today I will program, and you can calmly see how, I hope that I will become an experienced specialist!
